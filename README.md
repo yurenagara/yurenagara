@@ -3,6 +3,7 @@
 <div id="header" align="center">
 ♡
    <div id="header" align="center"> 
+
 <div id="header" align="center">
 <img src="https://64.media.tumblr.com/7f1893eb9c466166fbe7131ea5f202ab/30da6dba59ccd1ec-54/s100x200/dd7700d1322c5064451f27528916ae9247c3d71e.gifv">
 
@@ -12,7 +13,7 @@
 ㅤㅤ
 <div id="header" align="center">
 
-
+      let my love be your aphorism
 
 <div id="header" align="center">
 
