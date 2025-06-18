@@ -1,21 +1,35 @@
-<p align="center">
-  <img src="https://i.postimg.cc/ZKsXjDMF/tumblr-d2be5bb212b3e667af3e0d34d2c85160-6a7a58e0-2048-1-Photoroom-2-Photoroom.png">
 
 
+<div id="header" align="center">
+♡
+   <div id="header" align="center"> 
+<div id="header" align="center">
+<img src="https://64.media.tumblr.com/7f1893eb9c466166fbe7131ea5f202ab/30da6dba59ccd1ec-54/s100x200/dd7700d1322c5064451f27528916ae9247c3d71e.gifv">
 
-<p align="center">
-    <b><i>YOU CAN TAKE CONTROL OF HOW MY HEART BLEEDS<i><b>
+
+![](https://komarev.com/ghpvc/?username=yurenagara&label=⠀⠀⠀goon⠀⠀⠀&style=plastic&color=1a1c1b) <img src="https://maguro.carrd.co/assets/images/gallery03/f63fd80d.gif?v=10a293e5">
 </p>
+ㅤㅤ
+<div id="header" align="center">
 
 
-<p align="center">
-    hit with the swag disease(pls i have a job.)
-</p>
-      
-<p align="center">
-    <b><i>           .                op -               - @yurenagara <i><b>   <img src="https://maguro.carrd.co/assets/images/gallery03/f63fd80d.gif?v=10a293e5">
-</p>
+
+<div id="header" align="center">
 
 
-  <img src="https://64.media.tumblr.com/01cd1d1dbcb8c6fe7cc3f711cfa70aec/65d4c55ee97bbbef-5f/s2048x3072/bd9723a499341a9677972e16ccf5adc8af7f471c.pnj">
-<p align="center">  <img src="https://i.ibb.co/JjWSnxWT/ezgif-49aa1698216759.gif"></p>
+<img src="https://i.ibb.co/Xxm96CfD/blur-edges-61-1.png">
+⠀
+
+<div id="header" align="center">
+
+[<img src="https://i.ibb.co/RkBJFrVr/cooltext484835757295553.png">](https://angelic.atabook.org/) 
+<div id="header" align="center">
+  
+[<img src="https://i.ibb.co/VcJvCc3R/cooltext484835784075411.png">](https://yurenagara.straw.page/) 
+
+refer to my rentry for info!
+<div id="header" align="center">
+
+<img src="https://xyz.crd.co/assets/images/gallery06/22f2c728.gif?v=de6feabd">
+
+
