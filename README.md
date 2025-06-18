@@ -24,6 +24,7 @@
 
 [<img src="https://i.ibb.co/RkBJFrVr/cooltext484835757295553.png">](https://angelic.atabook.org/) 
 <div id="header" align="center">
+ㅤㅤ
   
 [<img src="https://i.ibb.co/VcJvCc3R/cooltext484835784075411.png">](https://yurenagara.straw.page/) 
 
@@ -31,5 +32,9 @@ refer to my rentry for info!
 <div id="header" align="center">
 
 <img src="https://xyz.crd.co/assets/images/gallery06/22f2c728.gif?v=de6feabd">
+<div id="header" align="center">
+ㅤㅤ
+   <div id="header" align="center">
+ <img src="https://i.ibb.co/gZgfS7bC/blinkies-Cafe-Xv.gif"> <img src="https://i.ibb.co/pvMCwHdb/blinkies-Cafe-x-D.gif"> <img src="https://i.ibb.co/4wVTrCWM/blinkies-Cafe-qa.gif">
 
 
