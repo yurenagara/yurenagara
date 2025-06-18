@@ -16,8 +16,7 @@
 
 <div id="header" align="center">
 
-
-<img src="https://i.ibb.co/Xxm96CfD/blur-edges-61-1.png">
+<img src="https://i.ibb.co/RTQVxRBL/blur-edges-61-1-1.png">
 ⠀
 
 <div id="header" align="center">
