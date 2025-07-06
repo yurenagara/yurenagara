@@ -36,5 +36,8 @@ refer to my rentry for info!
 ㅤㅤ
    <div id="header" align="center">
  <img src="https://i.ibb.co/gZgfS7bC/blinkies-Cafe-Xv.gif"> <img src="https://i.ibb.co/pvMCwHdb/blinkies-Cafe-x-D.gif"> <img src="https://i.ibb.co/4wVTrCWM/blinkies-Cafe-qa.gif">
+      ㅤㅤ
+      ㅤㅤ
+ <img src="https://i.ibb.co/bjm5tJQY/blur-edges-62.png">
 
 
