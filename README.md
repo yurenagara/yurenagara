@@ -41,3 +41,4 @@ refer to my rentry for info!
  <img src="https://i.ibb.co/bjm5tJQY/blur-edges-62.png">
 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=ld5hftzj7if8qbcymrsdzvy8n&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=121212&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
